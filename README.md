@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning stuff
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me idk
-- 😄 Pronouns: En / passant
+-67
 - ⚡ Fun fact: I like eating grilled cheese sandwiches
 
 <!---
